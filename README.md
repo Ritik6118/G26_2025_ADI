@@ -1,1 +1,1 @@
-One Note Url  --> https://onedrive.live.com/view.aspx?resid=64922740FC04C48B!s8a812bc0debf41e5a8beaa2583da0619&migratedtospo=true&wd=target%28G26.one%7C6dd21ea3-8c80-460a-962a-7aa4bb08bf03%2FLec_01%7C4d428adc-b1b9-4058-88cf-645355426721%2F%29&wdorigin=NavigationUrl
+One Note Url  --> https://1drv.ms/o/c/64922740fc04c48b/EsArgYq_3uVBqL6qJYPaBhkBJYwKlUAlOdE2mM7g57qNRA?e=mBEWLp
